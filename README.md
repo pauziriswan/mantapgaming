@@ -1,0 +1,2 @@
+# mantapgaming
+AKUMSSSH GAMIMGSKWP10
